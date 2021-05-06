@@ -1,16 +1,21 @@
-### Hi there 👋
+## ElonSperm 💦💦💦
 
-<!--
-**elonsperm/ElonSperm** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### Let's get Elon Sperm to Mars! 🪐
 
-Here are some ideas to get you started:
+Elon Sperm is an entirely community driven project. Completely Rug Free.
+1000.000.000.000 initial supply = 1000B
+✅ Safe launch using DxSale
+✅ LP locked for 12 months
+✅ Auto-liquidity generated with every trade and loaded into PancakeSwap
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+RFI + LIQ
+♻️ 5% of all trades are redistributed to holders
+🔓 5% of all trades are auto-locked inside liquidity provider on PancakeSwap
+
+We will burn ejaculate Elon Sperm every-time we hit a threshold orgasm. Your SPERM gets more value with every new holder!!
+
+Burn SPERM thresholds
+👉 BURN 42B if we reach 2 000 holders
+👉 BURN 50B if we reach 20 000 holders
+👉 BURN 76B if we reach 50 000 holders
+👉 BURN 100B if we reach 100 000 holders
