@@ -2,6 +2,8 @@
 
 ### Let's get Elon Sperm to Mars! 🪐
 
+Elon Sperm Elon Sperm (SPERM) is a community token created by an ambitious team of young professionals with a passion for crypto and a great sense of humor. This project is supported by a sophisticated tokenomic with a total supply of 1 000B, a responsible deflationary (5% of each transaction will be redistributed between the holders and 5% of each transaction to the Liquidity Pool) and burn strategy. Elon SPERM holders will benefit from this fast-growing token as well as from future air drops, special NFT collectibles or Elon Sperm merch. The vision of the Elon SPERM project is to further contribute to testicular cancer research through each transaction performed.
+
 #### Elon Sperm is an entirely community driven project. Completely Rug Free.
 * 1000.000.000.000 initial supply = 1000B
 * ✅ Safe launch using DxSale
