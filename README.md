@@ -17,7 +17,7 @@ Elon Sperm Elon Sperm (SPERM) is a community token created by an ambitious team 
 We will burn ejaculate Elon Sperm every-time we hit a threshold orgasm. Your SPERM gets more value with every new holder!!
 
 #### Burn SPERM thresholds
-* 👉 BURN 42B if we reach 2 000 holders
+* 👉 BURN 42B if we reach 2 000 holders - DONE ✅ https://bscscan.com/tx/0x5ecd07ee2470aea762e9275e12ff163bd61faf62321bd13e83679fe5ee9ec215
 * 👉 BURN 50B if we reach 20 000 holders
 * 👉 BURN 76B if we reach 50 000 holders
 * 👉 BURN 100B if we reach 100 000 holders
